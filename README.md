@@ -24,3 +24,8 @@ We got to kill these personalities
 
 I'm Counting Up
 I'm Counting Up
+
+## https://www.youtube.com/watch?v=qN1eNObpheE
+## g-dd-ss-s all over the place
+## The Goddess of Suffering
+## The Goddess of Fate
