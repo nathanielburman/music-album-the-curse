@@ -1,9 +1,9 @@
 # music-album-the-curse
 music album called the Curse by Honor Citizen
 
-https://www.youtube.com/watch?v=jKCKl0tOG_c
-killing personalities -o---ss (medicine goddess) by Honor Citizen
-11/27/2023
+## https://www.youtube.com/watch?v=jKCKl0tOG_c
+## killing personalities -o---ss (medicine goddess) by Honor Citizen
+### 11/27/2023
 
 We got to kill these personalities
 We got to kill these personalities
